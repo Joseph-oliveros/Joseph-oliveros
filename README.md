@@ -9,7 +9,6 @@
 - 📫 How to reach me **oliverosezequiel0@gmail.com**
 - 📝 I studied at Universidad Tecnológica Nacional Mendoza (UTN)
 - 💬 Ask me about: anything, I am happy to help
-- <img src="https://komarev.com/ghpvc/?username=Joseph-oliveros&label=Profile%20views&color=brightgreen&style=plastic" alt="Joseph's profile views" />
 
 <br><br>
 
